@@ -29,3 +29,7 @@ I firmly believe that cultural understanding and communication are the true foun
   I aspire to relocate to China in order to continue my academic journey in Finance and International Economics, immersing myself directly in one of the most dynamic economic environments in the world.
 
   A humble young man with an insatiable desire to learn, improve, and create meaningful connections across cultures and nations.
+
+You can reach me on : 
+Email : simonefasulo01@outlook.it
+Instagram: @simonexi.f
