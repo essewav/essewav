@@ -1,14 +1,8 @@
-## Hi there 👋
-
-<!--
-**essewav/essewav** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-# Simone Fasulo
+## Hi there i'm Simone Fasulo
 
 🌍 Passionate language learner, economics student, and aspiring international business professional.  
 I firmly believe that cultural understanding and communication are the true foundations of global progress.
 
----
 
 - 🔭 I’m currently working on improving myself, especially my social and interpersonal skills, striving every day to become a more capable, disciplined, and well-rounded individual.
 
